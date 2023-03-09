@@ -1,1 +1,1 @@
-# rsschool-cv
+https://fgdsh3.github.io/rsschool-cv/cv
